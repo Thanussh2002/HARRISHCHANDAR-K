@@ -1,4 +1,4 @@
-# HARRISHCHANDAR-K
+# HARRISHCHANDER-K
 WEBSITE LINK:
 https://semibel.my.canva.site/
 VIDEO LINK:
